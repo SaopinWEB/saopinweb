@@ -2,7 +2,7 @@
 
 this is me saopin 
 
-and i make music and programs sometimes
+and i make music and programs and sites sometimes
 
 music here [saopin](https://soundcloud.com/saopin)
 
