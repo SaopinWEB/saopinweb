@@ -4,10 +4,10 @@ this is me saopin
 
 and i make music and programs sometimes
 
-music here https://soundcloud.com/saopin
+music here (saopin)[https://soundcloud.com/saopin]:
 
-and here https://soundcloud.com/path-empty
+and here (path_empty)[https://soundcloud.com/path-empty]:
 
-some socials: https://twitter.com/saopinmusic
+some socials: (twitter)[https://twitter.com/saopinmusic]
 
-https://www.instagram.com/disaopin/
+(photos)[https://www.instagram.com/disaopin/]
