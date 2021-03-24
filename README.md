@@ -6,8 +6,8 @@ and i make music and programs sometimes
 
 music here https://soundcloud.com/saopin
 
-here https://soundcloud.com/path-empty
+and here https://soundcloud.com/path-empty
 
-and here https://soundcloud.com/inpaint
+some socials: https://twitter.com/saopinmusic
 
-
+https://www.instagram.com/disaopin/
