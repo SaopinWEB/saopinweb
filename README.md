@@ -4,9 +4,9 @@ this is me saopin
 
 and i make music and programs sometimes
 
-music here (saopin)[https://soundcloud.com/saopin]:
+music here (saopin)[https://soundcloud.com/saopin]
 
-and here (path_empty)[https://soundcloud.com/path-empty]:
+and here (path_empty)[https://soundcloud.com/path-empty]
 
 some socials: (twitter)[https://twitter.com/saopinmusic]
 
