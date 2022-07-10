@@ -1,15 +1,3 @@
-### hi there 
-
-this is me saopin 
-
-and i make music and sites sometimes
-
-music here [saopin](https://soundcloud.com/saopin)
-
-and here [path_empty](https://soundcloud.com/path-empty)
-
-some socials: [twitter](https://twitter.com/saopinmusic),
-              [photos](https://www.instagram.com/disaopin/)               
-              
+### hi there
 ![peepoChat](https://i.imgur.com/lWrGPmi.gif)
 
